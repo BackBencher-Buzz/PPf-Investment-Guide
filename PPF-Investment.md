@@ -19,7 +19,7 @@ Rahul, a salaried professional, started investing ₹12,500 per month in PPF at 
 
 With market uncertainty, a **government-backed, tax-free, risk-free investment** like PPF is a no-brainer.
 
-For a more detailed comparison of PPF with other investment options, check out [PPF](https://backbencherbuzz.com/ppf-vs-other-investments).
+For a more detailed comparison of PPF with other investment options, check out [PPF](https://backbencherbuzz.com/public-provident-fund-ppf-benefits/).
 
 
 **Would you prioritize guaranteed returns or flexibility in your investments? Let's discuss!**
